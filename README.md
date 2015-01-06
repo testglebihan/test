@@ -15,13 +15,6 @@ gdgfdfsfdsfds
 gd
 sdfsfdfsd
 fdsfsd
-dsffdsfsddsffsddsq
-dfsfsdfds
-fd
-dsffsdsddsfdsfdds
-dsffsd
-fdssdsfd
-aaaaaaa
 dsffsdf
 fsdfdsfsd
 fdsfdssd
