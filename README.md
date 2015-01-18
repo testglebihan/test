@@ -15,8 +15,3 @@ dqs
 jkljkld
 dsq
 sdq
-dsq
-ds
-
-dqs
-qds
