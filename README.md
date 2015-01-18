@@ -9,13 +9,6 @@ bbbbbbbbbbb
 fdsdsfdsfs
 aaaa
 gfsgfdfs
-dgfdgfdg
-fdsfsd
-dsffsdf
-fdsffs
-fsfdsdf
-fdsfdsfds
-fsdfds
 fds
 fsfsq
 dqdsqqds
