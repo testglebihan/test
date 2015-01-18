@@ -21,3 +21,11 @@ ffs
 ffs
 dsqqds
 dsdsq
+fds
+f
+ds
+f
+s
+fsd
+sd
+ds
