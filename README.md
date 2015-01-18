@@ -11,12 +11,6 @@ aaaa
 gfsgfdfs
 fds
 fsfsq
-dqdsqqdsdq
-dq
-d
-sqd
-
-dq
 dqs
 jkljkld
 qds
